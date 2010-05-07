@@ -12,4 +12,4 @@ http://onethousandseas.org/scrumty/archives/category/themes/aaron-twackleworth
 
 If either of those pages are down for maintenance, go here for updates: 
 
-http://imbloglio.tumblr.com/tagged/!site updates !scrumty
+http://imbloglio.tumblr.com/tagged/!site%20updates%20!scrumty
